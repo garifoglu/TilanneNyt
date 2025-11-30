@@ -1,2 +1,3 @@
 # TilanneNyt
-![preggo](https://github.com/user-attachments/assets/962a7319-79e3-4e20-9745-b6e2043b8db4)
+![image](https://github.com/user-attachments/assets/8aea1416-1d60-4881-88fb-0db66e5ae6cb)
+
