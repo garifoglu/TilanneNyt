@@ -1,3 +1,5 @@
 # TilanneNyt
-![image](https://github.com/user-attachments/assets/8aea1416-1d60-4881-88fb-0db66e5ae6cb)
+![image](https://github.com/user-attachments/assets/a12e8298-b5d7-4512-b290-9397e6b3980e)
+
+
 
